@@ -1,1 +1,1 @@
-# smcc.github.io
+# smccprofil.github.io
